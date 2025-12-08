@@ -6,7 +6,7 @@
 
 ୨ৎ　 <ins>c + h freely , safk , w2i</ins>　 ୨ৎ
 
-⠀
+*“I'm not really feeling like my self today.”*
 
 <img src="https://files.catbox.moe/hcnfxl.png" width="300">
 
