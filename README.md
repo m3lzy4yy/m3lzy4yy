@@ -1,10 +1,12 @@
-# info
 <div align="center">
 
-﹒ ︵︵﹒︵︵୨ ꒰ㅤ꒱ ୧︵︵﹒︵︵ ﹒
+ིྀ 𓎟ᛝ𓎟𓎟　†　𓎟𓎟ᛝ𓎟 ྀི
 
-<ins>Melody</ins>　 　 *she* ﾉ *they* ﾉ *it*　 　 *spa* ﾉ *eng*　 　 ࿐ 
+@ **Melody**   ⋮  *she / they / it*
 
-*c+h freely*　 　**int** ﾉ **w2i**　 　 *afk sometimes*　 　 **♡**
+୨ৎ　 <ins>c + h freely , safk , w2i</ins>　 ୨ৎ
 
-![1x4](https://media1.tenor.com/m/8_u63RihKrYAAAAC/1x-forsaken.gif)
+⠀
+
+<img src="https://files.catbox.moe/hcnfxl.png" width="300">
+
