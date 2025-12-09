@@ -4,9 +4,9 @@
 
 @ **Melody**   ⋮  *she / they / it*
 
-୨ৎ　 <ins>c + h freely , safk , w2i</ins>　 ୨ৎ
+୨ৎ　 <ins>c + h freely , safk sometimes , w2i</ins>　 ୨ৎ
 
 *“I'm not really feeling like my self today.”*
 
-<img src="https://files.catbox.moe/hcnfxl.png" width="300">
+<img src="https://files.catbox.moe/atgqh5.png" width="300">
 
