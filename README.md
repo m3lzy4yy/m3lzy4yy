@@ -8,5 +8,7 @@
 
 *“I'm not really feeling like my self today.”*
 
+[rentry *!!*](https://rentry.co/dirklings)
+
 <img src="https://i.postimg.cc/GtvVS2mN/Untitled64-20260123034728.png" width="300">
 
