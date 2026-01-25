@@ -4,7 +4,7 @@
 
 @ **Melody**   ⋮  *she / they / it*
 
-୨ৎ　 <ins>c + h freely , safk sometimes , w2i</ins>　 ୨ৎ
+୨ৎ　 <ins>c + h freely , w2i</ins>　 ୨ৎ
 
 *“I'm not really feeling like my self today.”*
 
