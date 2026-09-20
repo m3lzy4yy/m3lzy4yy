@@ -1,9 +1,20 @@
 <div align="center">
 
-r3making this, b3 pati3nt :D *!!*
+$\color{#86b1cf}{❝⠀⠀A⠀⠀doggy⠀⠀is⠀⠀nuttin'⠀⠀if⠀⠀he⠀⠀don'⠀⠀have⠀⠀a⠀⠀bone⠀⠀❞}$
 
-<img src="https://files.catbox.moe/ubihbc.gif" width="210">
+<img src="(https://i.postimg.cc/xCJx7fvC/Untitled6-20260919235634.png)" width="210">
 
-for now, sign my [ata](https://satyrs.atabook.org) or my [strawpag3](https://dirklingscoolstraw.straw.page)
+$\color{#86b1cf}{melody⠀⠀𐂯⠀⠀she⠀⠀৴⠀⠀they⠀⠀৴⠀⠀it}$
+
+$\color{#86b1cf}{c+h⠀⠀freely⠀⠀any⠀⠀time⠀⠀♡}$
+
+$\color{#86b1cf}{w2i⠀⠀૮・ﻌ・ა}$
+
+$\color{#86b1cf}{have⠀⠀a⠀⠀little⠀⠀look⠀⠀at⠀⠀my⠀⠀pages⠀⠀𓈒⠀⠀𓈒⠀⠀𓈒}$
+
+[rentry](https://rentry.co/hearts4dirk)⠀⠀[atabook](https://satyrs.atabook.org)⠀⠀[strawpage](https://dirklingscoolstraw.straw.page)
+
+![](https://komarev.com/ghpvc/?username=m3lzy4yy&label=smuppets&color=5c84a1&style=plastic)
+
 
 
