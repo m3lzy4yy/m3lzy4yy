@@ -2,7 +2,7 @@
 
 $\color{#86b1cf}{❝⠀⠀A⠀⠀doggy⠀⠀is⠀⠀nuttin'⠀⠀if⠀⠀he⠀⠀don'⠀⠀have⠀⠀a⠀⠀bone⠀⠀❞}$
 
-<img src="(https://i.postimg.cc/xCJx7fvC/Untitled6-20260919235634.png)" width="210">
+<img src="https://files.catbox.moe/7oe403.png" width="500" height="390">
 
 $\color{#86b1cf}{melody⠀⠀𐂯⠀⠀she⠀⠀৴⠀⠀they⠀⠀৴⠀⠀it}$
 
