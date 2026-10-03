@@ -14,7 +14,7 @@ $\color{#86b1cf}{have⠀⠀a⠀⠀little⠀⠀look⠀⠀at⠀⠀my⠀⠀pages⠀
 
 [fluffle.cc](https://fluffle.cc/dirkspup)⠀⠀[atabook](https://satyrs.atabook.org)⠀⠀[strawpage](https://dirklingscoolstraw.straw.page)⠀⠀[prns.cc](https://pronouns.cc/@m3lz_y4yy)
 
-![](https://komarev.com/ghpvc/?username=m3lzy4yy&label=smuppets&color=5c84a1&style=plastic)
+![](https://komarev.com/ghpvc/?username=m3lzy4yy&label=smuppets&color=5c84a1&style=flat&abbreviated=true)
 
 
 
