@@ -13,7 +13,7 @@ $\color{#ff6ff2}{c+h⠀⠀freely⠀⠀ପଓ⠀⠀w2i}$
 
 $\color{#ff6ff2}{I⠀⠀LOVE⠀⠀MY⠀⠀FRIENDS⠀⠀!!⠀⠀HAI⠀⠀GUYSSS⠀⠀( ˶ˆ꒳ˆ˵ )}$
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀♡⠀⠀[@cake](https://github.com/mequoli)⠀⠀[@jade](https://github.com/d9gtier)⠀⠀[@dave](https://github.com/knightofttime)⠀⠀[@rick](https://github.com/plut0sfork)⠀⠀♡
+♡⠀⠀[@cake](https://github.com/mequoli)⠀⠀[@jade](https://github.com/d9gtier)⠀⠀[@dave](https://github.com/knightofttime)⠀⠀[@rick](https://github.com/plut0sfork)⠀⠀♡
 
 
 
