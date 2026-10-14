@@ -22,7 +22,7 @@ $\color{#ff6ff2}{I⠀⠀LOVE⠀⠀MY⠀⠀FRIENDS⠀⠀!!⠀⠀HAI⠀⠀GUYSSS�
 ♡⠀⠀[@cake](https://github.com/mequoli)⠀⠀[@jade](https://github.com/d9gtier)⠀⠀[@dave](https://github.com/knightofttime)⠀⠀[@rick](https://github.com/plut0sfork)⠀⠀♡
 
 
-
+![](https://komarev.com/ghpvc/?username=m3lzy4yy&color=6a006a&style=plastic&label=wwizards&abbreviated=true)
 
 
 
