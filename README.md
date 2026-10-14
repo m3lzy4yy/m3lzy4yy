@@ -1,20 +1,23 @@
 <div align="center">
 
-$\color{#86b1cf}{❝⠀⠀A⠀⠀doggy⠀⠀is⠀⠀nuttin'⠀⠀if⠀⠀he⠀⠀don'⠀⠀have⠀⠀a⠀⠀bone⠀⠀❞}$
+<img align="left" width="300" height="200" src="https://files.catbox.moe/qc22ps.png"> 
 
-<img src="https://files.catbox.moe/7oe403.png" width="500" height="390">
+ac:⠀⠀[@frigiddoctoratus on tumblr!](https://www.tumblr.com/frigiddoctoratus)
 
-$\color{#86b1cf}{melody⠀⠀𐂯⠀⠀she⠀⠀৴⠀⠀they⠀⠀৴⠀⠀it}$
 
-$\color{#86b1cf}{c+h⠀⠀freely⠀⠀any⠀⠀time⠀⠀♡}$
+$\color{#ff6ff2}{melody⠀⠀or⠀⠀roxy⠀⠀৴⠀⠀eridan}$
 
-$\color{#86b1cf}{w2i⠀⠀૮・ﻌ・ა}$
+$\color{#ff6ff2}{(≧ᗜ≦)⠀⠀she⠀⠀৴⠀⠀they⠀⠀৴⠀⠀it}$
 
-$\color{#86b1cf}{have⠀⠀a⠀⠀little⠀⠀look⠀⠀at⠀⠀my⠀⠀pages⠀⠀𓈒⠀⠀𓈒⠀⠀𓈒}$
+$\color{#ff6ff2}{c+h freely⠀ପଓ⠀w2i}$
 
-[fluffle.cc](https://fluffle.cc/eriroxy)⠀⠀[atabook](https://wwizards.atabook.org/)⠀⠀[strawpage](https://dirklingscoolstraw.straw.page)⠀⠀[prns.cc](https://pronouns.cc/@m3lz_y4yy)
+$\color{#ff6ff2}{I LOVE MY FRIENDS!! HAI GUYSSS⠀⠀( ˶ˆ꒳ˆ˵ )}$
 
-![](https://komarev.com/ghpvc/?username=m3lzy4yy&label=smuppets&color=5c84a1&style=plastic&abbreviated=true)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀♡⠀⠀[@cake](https://github.com/mequoli)⠀⠀[@jade](https://github.com/d9gtier)⠀⠀[@dave](https://github.com/knightofttime)⠀⠀[@rick](https://github.com/plut0sfork)⠀⠀♡
+
+
+
+
 
 
 
