@@ -13,14 +13,6 @@ $\color{#ff6ff2}{(≧ᗜ≦)⠀⠀she⠀⠀৴⠀⠀they⠀⠀৴⠀⠀it}$
 
 $\color{#ff6ff2}{c+h⠀⠀freely⠀⠀ପଓ⠀⠀w2i}$
 
-⠀⠀
-
-⠀⠀
-
-$\color{#ff6ff2}{I⠀⠀LOVE⠀⠀MY⠀⠀FRIENDS⠀⠀!!⠀⠀HAI⠀⠀GUYSSS⠀⠀( ˶ˆ꒳ˆ˵ )}$
-
-♡⠀⠀[@cake](https://github.com/rheavros)⠀⠀[@laivan](https://github.com/d9gtier)⠀⠀[@dave](https://github.com/knightofttime)⠀⠀[@rick](https://github.com/plut0sfork)⠀⠀♡
-
 
 ![](https://komarev.com/ghpvc/?username=m3lzy4yy&color=6a006a&style=plastic&label=wwizards&abbreviated=true)
 
